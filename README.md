@@ -1,0 +1,2 @@
+# aminaabijuru
+amasomo
